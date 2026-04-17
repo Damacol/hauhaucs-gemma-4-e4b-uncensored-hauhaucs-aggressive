@@ -1,4 +1,4 @@
-# HauhauCS/Gemma-4-E4B-Uncensored-HauhauCS-Aggressive â€” Private, Uncensored AI for Real Creators & Devs
+# HauhauCS/Gemma-4-E4B-Uncensored-HauhauCS-Aggressive â€" Private, Uncensored AI for Real Creators & Devs
 
 > Tired of AI that babysits you, logs your prompts, or hits you with "I can't do that"?  
 > Meet the next-gen chatbot built for freedom, speed, and digital sovereignty.
